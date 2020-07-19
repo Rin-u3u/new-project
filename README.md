@@ -1,4 +1,4 @@
 # new-project
 ## rinrin
 
-[Mikuru Beam!](https://www.youtube.com/watch?v=eTF3vUgifpY)
+[Mikuru Beam!](https://www.youtube.com/watch?v=bnMTClJb9J8)
